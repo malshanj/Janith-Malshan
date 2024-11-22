@@ -1,1 +1,1 @@
-# Janith-Malshan
+# JanithMalshan
